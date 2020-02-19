@@ -1,1 +1,1 @@
-# new_journal
+# Emma's Journal
